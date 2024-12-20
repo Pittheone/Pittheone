@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects in general
 - 📫 How to reach me pedroascui.fenner@gmail.com
 - 😄 Pronouns: He-him
-- ⚡ Fun fact: Studiad animation and wrote many shorts and directed teasers.
+- ⚡ Fun fact: I studied animation and wrote many shorts and directed teasers.
 
 <!---
 Pittheone/Pittheone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
